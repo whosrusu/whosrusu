@@ -2,7 +2,7 @@
 
 ## <img src='https://cdn.discordapp.com/emojis/959746311480049674.gif' width='20'> **Social Media** <img src='https://cdn.discordapp.com/emojis/959746311480049674.gif' width='20'>
 > - <img src='https://media.discordapp.net/attachments/949934488866132057/965510136812695562/963332258159284224.png' width='17'> [*GitHub.*](https://github.com/RusuKing)
-> - <img src='https://media.discordapp.net/attachments/750576652290883584/947566409993564220/bannerstory_instagram.gif' width='17'> [_*Instagram.*_](https://www.instagram.com/invites/contact/?i=idhy74ua3ne2&utm_content=6aq3ot3)
+> - <img src='https://media.discordapp.net/attachments/750576652290883584/947566409993564220/bannerstory_instagram.gif' width='17'> [_*Instagram.*_](https://www.instagram.com/invites/contact/?i=idhy74ua3ne2&utm_content=6aq3ot3) - RusuKing
 > - <img src='https://media.discordapp.net/attachments/965179998279438376/965180157210026015/901775783947808779.png' width='17'> [_*YouTube.*_](https://youtube.com/c/iustininfinity)
 > - <img src='https://media.discordapp.net/attachments/965179998279438376/965181246672076830/889529924954763375.png' width='17'> [_*TikTok.*_](https://www.tiktok.com/@rusu.king)
 > - <img src='https://media.discordapp.net/attachments/965179998279438376/965231173435523112/946103662034452520.png' width='17'> [_*Snapchat.*_](https://www.snapchat.com/add/rusu.iustin?share_id=1Xaq3lXTelg&locale=ro-RO)
